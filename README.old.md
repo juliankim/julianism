@@ -1,2 +1,0 @@
-# julianism
-Portfolio
